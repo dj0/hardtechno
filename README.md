@@ -1,2 +1,3 @@
 # hardtechno
 これはハードテクノです
+PARTY HARD
